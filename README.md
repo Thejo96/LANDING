@@ -5,4 +5,4 @@
     src="https:&#x2F;&#x2F;www.canva.com&#x2F;design&#x2F;DAF_AoVw5k4&#x2F;czIHKFg0dcG16gsapRMPBA&#x2F;view?embed" allowfullscreen="allowfullscreen" allow="fullscreen">
   </iframe>
 </div>
-<a href="https:&#x2F;&#x2F;www.canva.com&#x2F;design&#x2F;DAF_AoVw5k4&#x2F;czIHKFg0dcG16gsapRMPBA&#x2F;view?utm_content=DAF_AoVw5k4&amp;utm_campaign=designshare&amp;utm_medium=embeds&amp;utm_source=link" target="_blank" rel="noopener">Navy Minimalist Business Landing Page Desktop Prototype</a> by Muhammad Nadeem Akhtar
+<a href="https:&#x2F;&#x2F;www.canva.com&#x2F;design&#x2F;DAF_AoVw5k4&#x2F;czIHKFg0dcG16gsapRMPBA&#x2F;view?utm_content=DAF_AoVw5k4&amp;utm_campaign=designshare&amp;utm_medium=embeds&amp;utm_source=link" target="_blank" rel="noopener"> 
